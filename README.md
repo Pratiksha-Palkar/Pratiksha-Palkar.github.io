@@ -1,1 +1,1 @@
-# pratikshapalkar1.github.io
+# pratikshapalkar.github.io
